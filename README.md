@@ -1,2 +1,0 @@
-# hjdh
-hjdh.org
